@@ -1,0 +1,1 @@
+# R-Studio-Resiliency-of-Fragmented-Equity-Markets
